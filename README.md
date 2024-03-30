@@ -4,3 +4,5 @@
 ### source engine brianfucked person
 ### if you want me in your projects, expect me to fuck up
 ### WWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWWW
+
+### Github sucks with this trade restriction bullshit
